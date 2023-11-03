@@ -1,1 +1,2 @@
-# Drive-Test-Milton
+# Drive Test Milton
+Drive tests: acquiring and monitoring information exchanged between the mobile terminal and the base transceiver station (BTS) Benchmarking: a comparative analysis of data sets collected at different times, as well as data comparison with other companies. A test drive is the driving of a motor vehicle to assess its drivability or roadworthiness, and general operating state. A person who [drive test milton](https://thedrivingtutors.com/drive-test-milton/) vehicles for a living, either for an automobile company, automotive media for review purposes, or a motorsports team, is called a test driver.
